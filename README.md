@@ -1,1 +1,1 @@
-Dökümanlar
+Zaman gerek kalmadan neleri harçadık .
