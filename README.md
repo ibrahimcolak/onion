@@ -1,4 +1,4 @@
-# Mohamed Ibrahim
+# İBRAHİM ÇOLAK
 
 ## Introduction
 E-resume to show it as website
